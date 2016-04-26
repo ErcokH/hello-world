@@ -1,2 +1,2 @@
 # hello-world
-priemer reaposotorio
+Hola soy kike me gusta los videojeugos y el futbol
